@@ -234,4 +234,4 @@ Luminar is available as a **full free version** with all features and updates in
 Upgrade your photography game today with Luminar! Click the download button above to get started with your **safe download** of Luminar for Windows.
 
 ---
-**Last updated:** 2026-10-04 21:05:03 UTC
+**Last updated:** 2026-10-05 00:35:14 UTC
